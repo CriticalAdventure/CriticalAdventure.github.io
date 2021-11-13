@@ -1,2 +1,6 @@
-# CriticalAdventure.github.io
-idk
+# CriticalAdventure's Page
+ayoooo
+hi
+hello
+UwU
+Σ(っ °Д °;)っ
