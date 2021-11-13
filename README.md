@@ -1,0 +1,2 @@
+# CriticalAdventure.github.io
+idk
